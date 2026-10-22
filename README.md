@@ -1,0 +1,1 @@
+# Gestor-i-Sistema-de-Recomanaci-d-Imatges-Generades-per-IA
